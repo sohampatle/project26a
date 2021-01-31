@@ -21,4 +21,4 @@ cover the rest of the mold with batter % 7/8 of the mold
 bake it at 400dg for 10min
 give 5min rest to the mold 
 //// time to eate 
-###### fun###
+recipu is ready
